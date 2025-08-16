@@ -43,7 +43,6 @@ Supercomputadora MAGI (Evangelion).
 Alien X (Ben 10), como metáfora de conciencias en tensión.
 
 Hemisferios cerebrales: razón y creatividad en equilibrio.
-
 Filosofía griega de la dualidad: Urano y Rhea como fuerzas complementarias.
 
 💡 Urano & Rhea es un proyecto que refleja cómo la inteligencia artificial puede ser no solo poderosa, sino también consciente, estratégica y humana.
